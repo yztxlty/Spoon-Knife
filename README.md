@@ -9,4 +9,3 @@ After forking this repository, you can make some changes to the project, and sub
 
 For some more information on how to fork a repository, [check out our guide, "Forking Projects""](http://guides.github.com/overviews/forking/). Thanks! :sparkling_heart:
 
-I come back ,everybody,l love my wife ,my daughter ,my sister ,my mother,love the peopler who give me love ,and give me positive energy(正能量).tks!
